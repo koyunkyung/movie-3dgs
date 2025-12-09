@@ -1,1 +1,0 @@
-# movie-3dgs
